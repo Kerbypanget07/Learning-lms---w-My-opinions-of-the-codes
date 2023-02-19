@@ -1,1 +1,0 @@
-# Learning-lms---w-My-opinions-of-the-codes
